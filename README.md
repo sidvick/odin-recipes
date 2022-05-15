@@ -1,1 +1,1 @@
-# odin-recipes
+this are some basic recipes that anyone can make. the selection also includes vegan friendly recipes.
